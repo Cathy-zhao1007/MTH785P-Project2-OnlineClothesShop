@@ -1,3 +1,5 @@
+please kindly check the 240145329-MTH785P-Coursework2 for detailed project report.
+
 1.	Introduction
 
 Nowadays, more and more young people are starting their own businesses and acting as brand managers to run their own commercial brands. In addition to opening offline stores, online shopping has also become the first choice for many customers. Customers often purchase and place orders through the brand’s official website. Therefore, I also opened an online clothing store called XKG, which sells T-shirts, dresses, shirts, sweatshirts, jeans, jackets and other clothing for commercial operation. 
