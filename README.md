@@ -1,4 +1,4 @@
-please kindly check the 240145329-MTH785P-Coursework2 for detailed project report.
+please kindly check the 240145329-MTH785P-Project2 for detailed project report.
 
 1.	Introduction
 
